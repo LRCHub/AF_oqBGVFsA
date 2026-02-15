@@ -1,0 +1,81 @@
+# 9for – Champion sound（feat. BASH da RIPPA）
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Champion sound
+聞かす敗者の鼓膜
+思い出させてやる
+誰がNo.1
+Champion sound
+ならし断ち切れよノイズ
+他の誰かじゃなくてお前がやる番
+Champion sound
+鳴らしたたけ
+My heart
+Champion sound
+ならし断ち切れよノイズ
+いつまで日陰？
+言い訳はいらねぇ
+Dying breedのラインがきっかけ
+2025もらう幕開け
+何者でもねぇ頃思い出しPlay
+Ah yeahOk
+あの場面で　括り決めた腹
+プライドを捨て手に取る判断
+残った、結果と、やってよかった
+やってよかったな
+なぁ、broも
+言ってくれてる
+俺を支える周りも言ってくれてる
+いつかやってやるが、今かなって
+成し遂げた一つ目
+Step by step で
+掴みとるゴールテープ
+踏み潰すploblem
+積み立てるプロセス
+一度咲いた花より
+根っこの太さ
+俺は見つけた
+俺であるための
+Champion sound
+聞かす敗者の鼓膜
+思い出させてやる
+誰がNo.1
+Champion sound
+ならし断ち切れよノイズ
+他の誰かじゃなくてお前がやる番
+Champion sound
+鳴らしたたけ
+My heart
+Champion sound
+ならし断ち切れよノイズ
+Ayo 争う勝ち負け
+Judgeなんて 誰かの匙加減
+マジダセェ 負けっぱなしだぜ？
+野次なんて Noiseだカマしたれ
+Try again 抜け出す掃き溜め
+諦める 選択は無しだぜ
+愛だけ 今も変わりはねぇ
+形だけのMoneyやFameに価値はねぇよB***h
+いつまで経っても平行線
+そりゃそうだろNo pain, No gain
+右肩上がりの成功へ
+やり遂げたヤツがK.O.K
+Let’s get it now
+匙投げりゃ冷めた目つきになる
+Let’s Keep it up, Stackする経験
+All day eyday, playing game
+Champion sound
+聞かす敗者の鼓膜
+思い出させてやる
+誰がNo.1
+Champion sound
+ならし断ち切れよノイズ
+他の誰かじゃなくてお前がやる番
+Champion sound
+鳴らしたたけ
+My heart
+Champion sound
+ならし断ち切れよノイズ
+```
